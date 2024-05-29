@@ -31,7 +31,7 @@ Conheça os membros da equipe por trás deste projeto inovador:
 - **[Pedro Henrique Carvalho Novaes](www.linkedin.com/in/pedrocnovaes)**
 - **[Mariana Menezes Correia](https://www.linkedin.com/in/mariana-menezes-correia-a19464282/)**
 - **Thiago Vinny Horta França Menezes**
-- **Roberto Maia Menezes**
+- **[Roberto Maia Menezes](https://www.linkedin.com/me?trk=p_mwlite_feed_updates-secondary_nav)**
 - **Arthur Simões Santana**
 - **Bergue Vitor de Souza Filho**
 - **Caio Victor Xavier Fontes**
